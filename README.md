@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I teach at LevelUP IRL
+I built an IBM DOS machine
+Chicago
+Rootics
+Contact me at RoboticsLady@gmail.com
+I beieve that when the winds of change start blowing, we MUSt build windmills instead of windbreakers. This is my life's story. And this sis me:
+<img src= "Hi.png">
